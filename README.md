@@ -1,1 +1,1 @@
-hi i really hope u like my game
+[hi guys I really hope you guys enjoy my game ty for playing]
